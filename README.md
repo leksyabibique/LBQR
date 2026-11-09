@@ -1,2 +1,0 @@
-# LBQR
-LBQR VERY SOON!
